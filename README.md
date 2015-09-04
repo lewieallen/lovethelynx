@@ -1,0 +1,2 @@
+# lovethelynx
+My personal website
